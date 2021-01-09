@@ -1,4 +1,4 @@
-## Welcome to Shitcoinventures
+## Welcome to Shitcoin Ventures
 
 We pick the hottest shitcoins 
 
